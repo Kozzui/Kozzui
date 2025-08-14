@@ -1,5 +1,4 @@
-## [　KOZZ'S INTRODUCTION 　]
-　　──────────
+## KOZZ'S INTRODUCTION
 　　　　✦　ִ　𝅄　　๑　　❜　　୨୧
 𓏏𓏏　Greetin, stranger, if you would like to know about me.. ❑ ⁾⁾
 　　　　◟‿︵ 𓏼⠀ׁ　♡　　　　　　　
