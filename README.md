@@ -1,6 +1,6 @@
 ## KOZZ'S INTRODUCTION
 00　๑　　❜　　୨୧　　
-𓏏𓏏　Greetin, stranger, if you would like to know about me.. ❑
+𓏏𓏏　Greetin, stranger, if you would like to know about me..  
 　◟‿︵ 𓏼　::　　
 𓎟𓎟　　I identify myself as Kozzui/Kozz, another nickname: Shiro/Lithium. I don't like some uncomfortable nicknames okay. I only like a comfortable nicknames you gave me.　　
 01　　　 ๋ ㅤ⏕　　　　ִ
