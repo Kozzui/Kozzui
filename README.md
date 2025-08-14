@@ -1,16 +1,15 @@
-## Hi there 👋
+## [　KOZZ'S INTRODUCTION 　]
+　　──────────
+　　　　✦　ִ　𝅄　　๑　　❜　　୨୧
+𓏏𓏏　Greetin, stranger, if you would like to know about me.. ❑ ⁾⁾
+　　　　◟‿︵ 𓏼⠀ׁ　♡　　　　　　　
+𓎟𓎟　　I identify myself as Kozzui/Kozz, another nickname: Shiro/Lithium. I don't like some uncomfortable nicknames okay. I only like a comfortable nicknames you gave me.
+　　　 ๋ ㅤ⠀ׁ　　　　ִ
+◠◠⠀⠀⠀I'm a artist and Animator, have alot socials (8 socials idk) example: tiktok, Twitter and Tumblr,...
+　◜　　ㅤ︵︵ ㅤ　۪　 ℯ
+basic dni: the problematic stuffs. + and if you're not comfortable with me saying those most joke causing of sensitive, please tell me to stop say words and I apologize. + English is not my main.
+　   𝅄　⠀ׁ　𔓕　﹒　　𓎢𓎟𓎡   ⠀𓈒
 
-<!--
-**Kozzui/Kozzui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+◍　𝅄　THAT'S ALL FOR NOW!!　⏆　𖥔
+　　𐂯﹒　　➴
+₍⠀⠀❑⠀⠀⊹⠀⠀C+h Is always welcomed and open ^_^ ⟡
