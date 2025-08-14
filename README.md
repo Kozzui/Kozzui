@@ -7,8 +7,8 @@
 ◠◠⠀⠀⠀I'm a artist and Animator, have alot socials (8 socials idk) example: tiktok, Twitter and Tumblr,...　
 　◜　　ㅤ︵︵ ㅤ　۪　 ℯ　　
 basic dni: the problematic stuffs. + and if you're not comfortable with me saying those most joke causing of sensitive, please tell me to stop say words and I apologize. + English is not my main.　　　　　　　
-　   𝅄　⠀ׁ　𔓕　﹒　　𓎢𓎟𓎡   ⠀𓈒
+　   𝅄　⏆　𔓕　﹒　　𓎢𓎟𓎡   ⠀𓈒
 
-◍　𝅄　THAT'S ALL FOR NOW!!　⏆　𖥔
+◍　𝅄　THAT'S ALL FOR NOW!!　;　𖥔
 　　𐂯﹒　　➴
 ₍⠀⠀❑⠀⠀⊹⠀⠀C+h Is always welcomed and open ^_^ ⟡
