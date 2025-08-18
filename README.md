@@ -15,8 +15,7 @@
 　◜　　ㅤ︵︵ ㅤ　۪　 ℯ　　
 
 basic dni: the problematic stuffs. + and if you're not comfortable with me saying those most joke causing of sensitive, please tell me to stop say words and I apologize. + English is not my main.
-　　　　　
-　
+
 𝅄　⏆　𔓕　﹒　　𓎢𓎟𓎡   ⠀𓈒
 
 ◍　𝅄　THAT'S ALL FOR NOW!!　;　𖥔
