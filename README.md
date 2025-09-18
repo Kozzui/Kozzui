@@ -19,7 +19,11 @@ basic dni: the problematic stuffs. + and if you're not comfortable with me sayin
 𝅄　⏆　𔓕　﹒　　𓎢𓎟𓎡   ⠀𓈒
 
 ◍　𝅄　THAT'S ALL FOR NOW!!　;　𖥔
+
+
 　　𐂯﹒　　➴
+
+
 ₍⠀⠀❑⠀⠀⊹⠀⠀C+h Is always welcomed and open ^_^ ⟡
 
 
