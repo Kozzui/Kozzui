@@ -30,3 +30,8 @@ basic dni: the problematic stuffs. + and if you're not comfortable with me sayin
 
 
 I LOVE MY BABIES TSC AND TCO DDUDDE I love Finn McCool and captain trotter
+
+
+![Uploading Untitled69_20250913054724.png …]()
+
+
