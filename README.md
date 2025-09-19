@@ -6,6 +6,10 @@
 
 ◟‿︵ 𓏼　⏆　　
 
+
+![13001416_afcf0.gif](https://github.com/user-attachments/assets/6d4aabe0-367d-4db7-9eb5-90663b3dfe3c)
+
+
 𓎟𓎟　　I identify myself as Kozzui/Kozz, another nickname: Shiro/Lithium. I don't like some uncomfortable nicknames okay. I only like a comfortable nicknames you gave me.
 　　
 01　　　 ๋ ㅤ　🏝　　　
