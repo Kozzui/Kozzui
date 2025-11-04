@@ -1,10 +1,10 @@
 ## KOZZ'S INTRODUCTION 
 
-00　๑　　❜　　୨୧　　
+hii read this plss　๑　　❜　　୨୧　　
 
 𓏏𓏏　Greetin, stranger, if you would like to know about me.. 
 
-◟‿︵ 𓏼　⏆　　
+0　　　།†︶　　　0 ⠀⠀⠀⠀ ｡ 𓏼
 
 
 ![13001416_afcf0.gif](https://github.com/user-attachments/assets/6d4aabe0-367d-4db7-9eb5-90663b3dfe3c)
@@ -12,7 +12,7 @@
 
 𓎟𓎟　　I identify myself as Kozzui/Kozz, another nickname: Shiro/Lithium. I don't like some uncomfortable nicknames okay. I only like a comfortable nicknames you gave me.
 　　
-01　　　 ๋ ㅤ　🏝　　　
+0　　╱　　1　　　𓏼 ͜͜✚
 
 ◠◠⠀⠀⠀I'm a artist and Animator, have alot socials (8 socials idk) example: tiktok, Twitter and Tumblr,...
 
@@ -24,13 +24,13 @@ basic dni: the problematic stuffs. + and if you're not comfortable with me sayin
 𝅄　　𔓕　 𓈒
 
 
-◍　𝅄　THAT'S ALL FOR NOW!!　;　𖥔
+THAT'S ALL FOR NOW!!　.　𖥔
 
 
 　　𐂯﹒　　➴
 
 
-₍⠀⠀❑⠀⠀⊹⠀⠀C+h Is always welcomed and open ^_^ ⟡
+C+h Is always welcomed and open ^_^
 
 
 I LOVE MY BABIES TSC AND TCO DDUDDE I love Finn McCool and captain trotter
