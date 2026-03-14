@@ -11,6 +11,7 @@ hii read this plss　๑　　❜　　୨୧　　
 
 
 𓎟𓎟　　I identify myself as Kozzui/Kozz, another nickname: Shiro/Lithium. I don't like some uncomfortable nicknames okay. I only like a comfortable nicknames you gave me.
+
 　　
 0　　╱　　1　　　𓏼 ͜͜✚
 
