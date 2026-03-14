@@ -31,10 +31,3 @@ THAT'S ALL FOR NOW!!　.　𖥔
 
 
 C+h Is always welcomed and open ^_^
-
-
-I LOVE MY BABIES TSC AND TCO DDUDDE I love Finn McCool and captain trotter
-
-
-![Untitled69_20250913054724.png](https://github.com/user-attachments/assets/b7306fae-915f-4f32-8da8-02f7abe5accc)
-
