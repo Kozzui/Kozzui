@@ -2,7 +2,7 @@
 　
 　
 　
-　　　　　　read my strawpage/rentry on my profile to know about me!!
+　　　　　read my strawpage/rentry on my profile to know about me!!
 ⠀
 ⠀
 ⠀
