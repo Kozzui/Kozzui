@@ -15,4 +15,6 @@
 my stupid siblings ✌
 
 
-![IMG_2035.png](https://github.com/user-attachments/assets/ab33dd72-4b07-4dec-aee2-daa712cc3aab)
+![IMG_2035.png](https://github.com/user-attachments/assets/e15e7cb1-0335-4fe0-bd3a-55401f60e833)
+
+
