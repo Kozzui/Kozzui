@@ -14,7 +14,7 @@
 ⠀
 ⠀
 ⠀
-my stupid siblings ✌ I'm sigma brother tuff
+my stupid siblings ✌ I'm sigma tuff brother 🤣🤣🤣
 　
 　
 　
