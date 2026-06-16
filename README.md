@@ -19,8 +19,6 @@ my stupid siblings ✌ I'm sigma brother tuff
 　
 　
 　
-
-
 ![IMG_2035.png](https://github.com/user-attachments/assets/e15e7cb1-0335-4fe0-bd3a-55401f60e833)
 
 
