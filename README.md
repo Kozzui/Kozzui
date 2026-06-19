@@ -1,9 +1,7 @@
 ## 　　　　　　　　　　　　　　☆
 　
 　
-　
-
-　　![Untitled95_20260619101050.png](https://github.com/user-attachments/assets/1b5793d2-20cc-4856-a9c6-645f294da10e)
+![Untitled95_20260619101050.png](https://github.com/user-attachments/assets/1b5793d2-20cc-4856-a9c6-645f294da10e)
 
 
 
