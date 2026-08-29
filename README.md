@@ -15,5 +15,5 @@
 ⠀
 ⠀
 ⠀
-　　　　　　　< Toughskate 3　𓎢𓎟𓎡　ic: My awesome friend blez ^_^
+　　　　< Toughskate 3　　𓎢𓎟𓎡　　ic: My awesome friend blez ^_^
 
